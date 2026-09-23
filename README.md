@@ -222,4 +222,4 @@ Grease Lightning is offered as a full free version, providing access to all feat
 Don't miss out on the opportunity to enhance your Kodi experience. **Download Grease Lightning today and enjoy endless entertainment!**
 
 ---
-**Last updated:** 2026-09-22 23:19:57 UTC
+**Last updated:** 2026-09-23 02:03:18 UTC
